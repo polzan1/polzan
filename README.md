@@ -2,6 +2,4 @@ cxcz323asascsaafhf
 sasagfgDFDFds
 xaxagthdgd
 axaddwcxvxvdc
-sassafsfdad
-cxczzffvd
-sf
+sassafsf
